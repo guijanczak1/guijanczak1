@@ -56,7 +56,7 @@ Atualmente, estou prestando serviço para o Bradesco, em paralelo eu atuo como *
 
 ### 📫 Vamos nos conectar?
 
-- 🌎 Site: [wizztecnologia.com.br](https://wizztecnologia.com.br/)
+- 🌎 Site: [guilhermejanczak.tech](https://guilhermejanczak.tech/)
 
 - 💼 LinkedIn: [Seu LinkedIn](https://www.linkedin.com/in/guilherme-janczak/)
 
